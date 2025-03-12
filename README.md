@@ -2,6 +2,6 @@
 - 👀 I’m interested in public health bioinformatics
 - 🌱 I’m currently learning viral taxonomy might be worse than bacterial taxonomy
 - 💞️ I’m looking to collaborate on everything - please help :sweat_smile:
-- 📫 How to reach me: jared.johnson@doh.wa.gov
+- 📫 How to reach me: jared.johnson@doh.wa.gov; jared.daniel.johnson@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Everything either is or is not a potato :sweet_potato: :alien:
+- ⚡ Fun fact: Everything either is or is not a potato :sweet_potato:
